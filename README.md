@@ -1,1 +1,1 @@
-![enter image description here](https://i.imgur.com/Evjm121.jpg)
+![enter image description here](https://media.licdn.com/dms/image/C4E16AQE2TMddPpvk7A/profile-displaybackgroundimage-shrink_350_1400/0/1632575710395?e=1682553600&v=beta&t=cCp2bvG4nPV1Xc3K1n3D89dD3ns3R_tZv938XRBy958)
